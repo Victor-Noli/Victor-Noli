@@ -12,6 +12,8 @@ What I do now?
 Wanna Chat?
 
 📫 Simple write me an email here : lerouxvictor3@gmail.com :D
+
+
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ⚡ Fun fact, I'm french and I don't like frogs... Weird right ?!
