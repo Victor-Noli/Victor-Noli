@@ -16,7 +16,7 @@ Wanna Chat?
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-⚡ Fun fact, I'm french and I don't like frogs... Weird right ?!
+⚡ Fun fact, I'm french and I don't like frogs... Weird right ?!                                                             
 👽 Sometimes I do play videogames yes... 
 
 <!--
