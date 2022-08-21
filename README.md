@@ -6,7 +6,7 @@ If you want to clone any project feel free to do so!
 
 What I do now?
 
-🔭 I’m currently working on several secrets projects don't worry... Patience is vertue!
+🔭 I’m currently working on several secrets projects don't worry... Patience is vertue!                                                         
 🌱 I’m currently learning React.js ! 
 
 Wanna Chat?
