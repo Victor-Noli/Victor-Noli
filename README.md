@@ -1,13 +1,13 @@
 ### Hi there 👋
 
 My name is Victor and I'm a developer ! Yes.... Well I'm a beginner so I'm trying my best ! 
-I'm part of the Chroma Team who creates Minecraft Modpacks and sometimes I create my own projects but not on Minecraft...
-If you want to clone any project feel free to do so! 
+I'm part of the Chroma Team who creates Minecraft Modpacks.
+
+I do not create personnal project any more. I don't have have time.
 
 What I do now?
 
-🔭 I’m currently working on several secrets projects don't worry... Patience is vertue!                                                         
-🌱 I’m currently learning React.js ! 
+🔭 I’m currently working on Chroma Endless and Chroma Endless 2                                                       
 
 Wanna Chat?
 
