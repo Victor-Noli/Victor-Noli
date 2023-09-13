@@ -7,7 +7,7 @@ I do not create personnal project any more. I don't have have time.
 
 What I do now?
 
-🔭 I’m currently working on Chroma Endless and Chroma Endless 2                                                       
+🔭 I’m currently working on  Chroma Endless 2                                                       
 
 Wanna Chat?
 
