@@ -1,9 +1,8 @@
 ### Hi there 👋
 
-My name is Victor and I'm a developer ! Yes.... Well I'm a beginner so I'm trying my best ! 
-I'm part of the Chroma Team who creates Minecraft Modpacks.
+My name is Victor and I do not create personnal project anymore. I don't have have time !  
 
-I do not create personnal project any more. I don't have have time.
+I'm part of the Chroma Team who creates Minecraft Modpacks.
 
 What I do now?
 
